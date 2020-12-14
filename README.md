@@ -1,0 +1,72 @@
+# Books I've Read
+The following is a non-exhaustive list of books I've read since around September 2019, when I started keeping track. Some items include a date. This is the date I completed the book. * Indicates books I especially enjoyed. A indicated audiobook.
+
+- Master and Margarita - Mikhail Bulgakov
+- The Glass Bead Game - Hermann Hesse A *
+- Demian - Herman Hesse
+- The Prophet - Kahlil Gibran
+- The Five People You Meet in Heaven - Mitch Albom A
+- The Way of the Peaceful Warrior - Dan Millman A
+- The Road - Cormac McCarthy
+- Into the Wild - John Krakauer
+- Into Thin Air - John Krakauer
+- Eiger Dreams - John Krakauer
+- Dragon Teeth - Michael Crighton A
+- The Reckoning - John Grisham A
+- World War Z - Max Brooks
+- The Giver - Lois Lowry A
+- John Livingston Seagull - Richard Bach
+- The Book - Alan Watts
+- The Wisdom of Insecurity - Alan Watts
+- The Long Walk - Slavomir Rawicz A
+- A Walk in the Woods - Bill Bryson
+- The Stranger in the Woods - Michael Finkel
+- Savage Harvest - Carl Hoffman A
+- Frozen in Time - Mitchell Zuckoff A
+- The Kingdom - Clive Cussler A
+- The Motorcycle Diaries - Ernesto Che Guevara A
+- Small Great Things - Jodi Picoult
+- The Shining - Stephen King A
+- Endurance - Alfred Lansing A
+- As I Lay Dying - William Faulkner
+- Lonesome Dove - Larry McMurtry A *
+- On the Road - Jack Kerouac A
+- Eleanor Oliphant is Completely Fine - Gail Honeyman
+- A Wild Sheep Chase - Haruki Murakami A
+- Colourless Tsukuru Tazaki and his Years of Pilgrimage - Haruki Murakami A
+- The Silent Patient - Alex Michaelides
+- A Clockwork Orange - Anthony Burgess
+- The Haunting of Hill House - Shirley Jackson A
+- Life Among the Savages - Shirley Jackson A
+- Blood Meridian - Cormac McCarthy *
+- Freakonomics - Steven D Levitt, Stephen J Dubner
+- 11/22/63 - Stephen King A
+- The Wind Up Bird Chronicles - Haruki Murakami A
+- A Death in the Family - James Agee A
+- In a Sunburned Country - Bill Bryson
+- Norwegian Wood - Haruki Murakami A
+- The Trial - Franz Kafka
+- Delicious Foods - James Hannaham
+- Wilderness - Lance Weller
+- Grapes of Wrath - John Steinbeck
+- A Time to Kill - John Grisham
+- A Painted House - John Grisham
+- The Help - Kathryn Stockett A
+- The Broker - John Grisham
+- Sycamore Row - John Grisham
+- Crime and Punishment - Fyodor Dostoevsky
+- The Nickel Boys - Colson Whitehead
+- The Underground Railroad - Colson Whitehead Sept 13 2020
+- Sapiens - Yuval Noah Harari A Sept 12 2020
+- Nineteen Minutes - Jodi Picoult A
+- The Road to Wigan Pier - George Orwell
+- All the Light We Cannot See - Anthony Doerr a
+- Anna Karenina - Leo Tolstoy
+- Dune - Frank Herbert A
+- Atomic Habits - James Clear A
+- The Book Thief = Markus Zusak A
+- The Rosie Project - Graeme Simsion Aug 29 2020
+- The Poisonwood Bible - Barbara Kingsolver *
+- No Country for Old Men = Cormac McCarthy A
+- Zero to One - Peter Thiel Dec 14 2020
+- Deep Work - Cal Newport A
